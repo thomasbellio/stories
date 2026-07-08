@@ -102,30 +102,3 @@ Also thanks to what I learned from Maria, I know that The Price of Courage is a 
 
 And that ain't no problem.
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-I have joked that you always know the home schooled kid, because he is always the smartest kid in the corner.
-
-Goodman,
-Bentonville,
-Sellersburg x2,
-Pekin IN. 
